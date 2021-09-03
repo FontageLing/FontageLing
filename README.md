@@ -1,6 +1,5 @@
 ### 方寒/FontageLing
-CV工程师/纯天然有害乐子人
-渡劫中 长弧 普通残疾
+CV工程师/纯天然有害乐子人/低等残疾/长弧
 
 <!--
 **FontageLing/FontageLing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
