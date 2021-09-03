@@ -1,5 +1,6 @@
 ### 方寒/FontageLing
-社恐/废物/挣扎中/希望能和大家做朋友
+CV工程师/纯天然有害乐子人
+渡劫中 长弧 普通残疾
 
 <!--
 **FontageLing/FontageLing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
