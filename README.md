@@ -1,5 +1,5 @@
 ### 方寒/FontageLing
-CV工程师/纯天然有害乐子人/低等残疾/长弧
+废物/学习与成长中/社交恐惧症/长弧/想成为温柔的人
 
 <!--
 **FontageLing/FontageLing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
