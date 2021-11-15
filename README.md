@@ -1,5 +1,5 @@
 ### 方寒/FontageLing
-废物/学习与成长中/社交恐惧症/长弧/想成为温柔的人
+中性/无性恋/废品/试图进步中
 
 <!--
 **FontageLing/FontageLing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
