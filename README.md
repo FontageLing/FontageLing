@@ -1,5 +1,5 @@
 ### 方寒/FontageLing
-中性/无性恋/废品/试图进步中
+中性/社恐/废物/INFP-T/泛性恋/想变得温柔可爱
 
 <!--
 **FontageLing/FontageLing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
